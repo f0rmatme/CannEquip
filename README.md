@@ -11,9 +11,13 @@ An equipment guide for those new to the home grown cannabis space
 
 [Air Stones](https://www.amazon.com/PIVBY-Oxygenation-Hydroponic-Aquaponics-Decorative/dp/B07KS1VGNZ/ref=sr_1_6?dchild=1&keywords=hydroponics+airstone&qid=1595362661&sr=8-6)
 
-[Light]
+[Light](https://www.alibaba.com/product-detail/Meijiu-Led-Board-Best-Selling-QB_62090945327.html?fullFirstScreen=true)
 
 [Fan](https://www.amazon.com/Comfort-Zone-Turbo-Speed-Black/dp/B001MEH1I2/ref=sr_1_10?dchild=1&keywords=8%22+fan&qid=1595363134&sr=8-10)
+
+[In-Line Fan](https://www.amazon.com/AC-Infinity-CLOUDLINE-T4-Thermostat/dp/B06ZXWN3BG/ref=sxts_sxwds-bia-wc-p13n1_0?cv_ct_cx=inline+fan&dchild=1&keywords=inline+fan&pd_rd_i=B06ZXWN3BG&pd_rd_r=83dab88a-9d35-4c64-8d68-023d5693efa8&pd_rd_w=I71SF&pd_rd_wg=63zqN&pf_rd_p=13bf9bc7-d68d-44c3-9d2e-647020f56802&pf_rd_r=E365X3ATZ1E9AM86H351&psc=1&qid=1595363572&sr=1-1-791c2399-d602-4248-afbb-8a79de2d236f)
+
+[Carbon Filter](https://www.amazon.com/VIVOSUN-Australia-Charcoal-Pre-filter-Reversible/dp/B01DXYMBU6/ref=sr_1_1_sspa?crid=1YGUQ34061EA9&dchild=1&keywords=4+inch+carbon+filter&qid=1595363686&sprefix=4+inch+carb%2Caps%2C164&sr=8-1-spons&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUEzRFZHSjhWNDFOTlE5JmVuY3J5cHRlZElkPUEwNjQzNjU4MzFBNTFZMzFXU1RUMCZlbmNyeXB0ZWRBZElkPUEwNDYwODk5VE9UVktXOFpPWVBRJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==)
 
 # Water Additives
 
