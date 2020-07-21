@@ -16,6 +16,10 @@ An equipment guide for those new to the home grown cannabis space
 | Total | $368.20  |
 
 
+Missing:
+Reservoir, Net pots, expanded clay pellets, rockwool, germination dome
+
+
 # Water Additives
 
 | Item          | Cost          |
